@@ -1,0 +1,2 @@
+# kotiavustaja-privacy
+Käyttöehdot
